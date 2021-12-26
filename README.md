@@ -1,7 +1,7 @@
 
 ### 你好，我是奋斗的苦瓜
 
-![](https://visitor-badge.glitch.me/badge?page_id=hacker233.readme)
+![](https://visitor-badge.glitch.me/badge?page_id=kugua.github.io)
 
 - 🥑 :  知乎 : 
 - 🍉: 微信公众号 : 
